@@ -2,7 +2,7 @@
 - 👀 I’m interested in toying with my pc, playing with my guitar and giving me a boost of caffine.
 - 🌱 I’m currently learning a few things, and idk where to foccus on.
 - 💞️ I’m looking to collaborate on anything that interests me.
-- 📫 How to reach me : Mail me: praikchoudhuri1609@gmail.com
+- 📫 Reach me out at https://thehypein.xyz
 
 <!---
 CodeBunny09/CodeBunny09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
